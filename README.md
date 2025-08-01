@@ -107,6 +107,3 @@ Feel free to explore more of my projects and reach out:
 > Visualizing entertainment trends to empower better content decisions 🎬
 
 
-
-> Visualizing entertainment trends to empower better content decisions 🎬
-
